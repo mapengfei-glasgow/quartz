@@ -13,7 +13,7 @@ They soon came to blows, and in the end, both Fuld and the officer lay bloodied 
 “No, there’s only one side to the story. You got into a fight with your commanding officer. That’s all that matters. I can’t have you in the program.”
 The ROTC was only the latest in a series of disappointments for Fuld, but it was also a sign that he was slowly coming into his own.
  
-Richard Severin Fuld Jr. grew up in the wealthy [[suburb]] of Harrison in Westchester County, New York, where his family owned [[United Merchants & Manufacturers]], a [[textile]] company whose annual revenue ultimately grew to $1 billion. United Merchants had been co-founded by his [[maternal]] grandfather, Jacob Schwab, in 1912 as the Cohn-Hall-Marx Company.
+Richard Severin Fuld Jr. grew up in the wealthy [[suburb]] of Harrison in Westchester County, New York, where his family owned [[United Merchants & Manufacturers]], a [[textile]] company whose annual revenue ultimately grew to \$1 billion. United Merchants had been co-founded by his [[maternal]] grandfather, Jacob Schwab, in 1912 as the Cohn-Hall-Marx Company.
 Because Fuld’s father didn’t want his son to go into the family business, Jacob Schwab, his grandfather, [[reached out]] to his longtime banking firm, a Wall Street [[outfit]] called Lehman Brothers, and secured his grandson a part-time summer position in its tiny Denver trading [[outpost]] in the summer of 1966. It was a three-person office, and Fuld did the [[chores]]—he spent most of his day copying documents (and this was the pre-copy machine era) and running [[errands]]. But the job was a revelation. Fuld loved what he saw. On the trading floor men yelled and worked with an intensity that he had never experienced before. “This is where I belong, he thought. Dick Fuld had found himself.
 What attracted him was not the fulfillment of some lifelong dream about playing with other people’s money, but rather something far more [[visceral]], something that instantly [[clicked]]. “I truly stumbled into investment banking,” he acknowledged years later. “Once I got exposed to it, I discovered that I actually understood it, and all the pieces fit.”
 There was one person in the company, though, whom he didn’t really like: Lewis L. Glucksman, a [[rough-hewn]], [[sloppily]] dressed [[muckety-muck]] from headquarters who occasionally dropped by the Denver office, [[intimidating]] and speaking [[gruffly]] to the crew. As keen as he was on landing a job in finance, Fuld swore he’d never work for this [[tyrant]].
@@ -28,7 +28,7 @@ Fuld agreed to remain at Lehman as he pursued his degree from New York Universit
 
 “When Fuld appeared in his office the following day, Glucksman told him that it was ridiculous that he was doing “all this [[menial]] bullshit. Why don’t you just come work for me?”
 “Do I get a [[raise]]?” asked Fuld.
-The two became fast friends, and Fuld began his [[ascension]] at the firm. His salary was $6,000 a year, roughly 1/10,000 of what he’d take home as the firm’s CEO some three decades later. By the end of the year, he was able to move out of his parents’ house and rent a one-bedroom at 401 East Sixty-fifth Street for $250 a month. He drove to work in an orange [[Pontiac GTO]], giving a lift to colleagues, including a young [[Roger]] C. Altman, who would later become the [[deputy Treasury secretary]].
+The two became fast friends, and Fuld began his [[ascension]] at the firm. His salary was \$6,000 a year, roughly 1/10,000 of what he’d take home as the firm’s CEO some three decades later. By the end of the year, he was able to move out of his parents’ house and rent a one-bedroom at 401 East Sixty-fifth Street for \$250 a month. He drove to work in an orange [[Pontiac GTO]], giving a lift to colleagues, including a young [[Roger]] C. Altman, who would later become the [[deputy Treasury secretary]].
 In Fuld, Glucksman saw himself as a young trader: “He didn’t let his emotions get the best of his judgment,” said Glucksman, who died in 2006. “Dick understood buys when they were buys and sells when they were sells. He was a natural.”
 “Every morning, as he walked onto the [[cramped]] trading floor, Fuld could feel his heart [[pounding]] with excitement. The noise. The swearing. Surviving by your [[wits]] alone. Trusting only your [[gut]]. He loved it all. As it happened, he had arrived at Lehman just as the firm was undergoing a major transformation that would benefit him [[enormously]].”
 
@@ -37,11 +37,6 @@ Fuld’s first year at the firm coincided with the death of its legendary senior
 
 By the 1960s the firm’s [[advisory]] banking business was second only to that of Goldman Sachs. But because Robert Lehman and the other partners hated the fact that corporate clients would have to go to Goldman for their financing needs, Lehman decided to start its own [[commercial paper-trading operation]], hiring Lewis Glucksman from the powerful Wall Street investment bank of A. G. Becker to run it.
 When Fuld came [[on board]], Glucksman’s trading operation was beginning to account for a majority of the profits at Lehman. The trading space was noisy and chaotic, with overflowing [[ashtrays]], cups of [[tepid]] coffee, and papers piled on the tops of terminals and under the telephones. Glucksman had the windows [[blacked out]] in a [[bid]] to re-create a Las Vegas casino atmosphere, with traders focused only on the [[Quotron ]]and [[Telerate]] machines that were [[standard-issue]] on Wall Street then. Phones were thrown; [[wastebaskets were kicked]]. And as in a Vegas casino, a [[miasma]] of cigarette smoke hung everywhere. It was a galaxy away from the [[genteel]] world of the bankers, but it was increasingly what Lehman Brothers was all about.”
-
-Excerpt From
-Too Big to Fail: The Inside Story of How Wall Street and Washington Fought to Save the Financial System--and Themselves
-Andrew Ross Sorkin
-This material may be protected by copyright.
 
 
 
